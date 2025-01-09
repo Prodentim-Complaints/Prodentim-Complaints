@@ -1,4 +1,4 @@
-# ProDentim Complaints Your Oral Health: Does It Really Work?
+# ProDentim Complaints: Does It Really Work?
 
 I never imagined that I would be writing about ProDentim and here we are.
 
